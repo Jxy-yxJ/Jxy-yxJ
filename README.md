@@ -22,6 +22,6 @@ shoegaze乐队鼓手@巧克力文件岛
 
 ## 📫 Contact
 
-Reach me at: jiaoxiangyue3 [at] gmail [dot] com
+Reach me at: jiaoxiangyue3＠gmail.com
 
 ---
